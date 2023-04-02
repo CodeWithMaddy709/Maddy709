@@ -6,7 +6,8 @@
 
 Youtube : https://www.youtube.com/channel/UCnP51kXl6QDzMGcFVIJsH2A
 Gmail : Chhammadshabir@gmail.com
-Contact Number : +923318813709
+Contact Number : +923305715786
+Whatsapp: +923318813709
 Facebook : https://www.facebook.com/hammadshabir709/
 Website : https://www.codewithmaddy.com
 <!---
